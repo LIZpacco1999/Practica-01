@@ -1,1 +1,2 @@
--            gfgfgfgdfxfxfxfcszzzzxdgcdcbvxcbvcxcvxcxvxcvxcxcxcxcxcx2212221.,.,,¿uy¿nhnjjnnjj# Practica-01
+Practica-01
+*ALUMNA :LIZBETH PACCO CHAÑI
